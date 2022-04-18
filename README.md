@@ -1,1 +1,0 @@
-# LavrinovaLab3
